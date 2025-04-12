@@ -5,7 +5,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=F70707&center=true&width=910&height=100&lines=Madni+MD+BOT" alt="Typing SVG" /></a>
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 ᴄʟɪᴄᴋ ᴡᴀ ʟᴏɢᴏ ᴛᴏ ᴊᴏɪɴ sᴜᴘᴘᴏʀᴛ ɢʀᴏᴜᴘ 👇 
-<br> [![join](https://raw.githubusercontent.com/SecktorBot/Brandimages/main/secktor.png)](https://chat.whatsapp.com/Ik0YpP0dM8jHVjScf1Ay5S)
+<br> [![join](https://raw.githubusercontent.com/SecktorBot/Brandimages/main/secktor.png)](https://whatsapp.com/channel/0029Vb5jtNK77qVNGc6deN2o)
    
 <h4 align="center">SILVA SUPPORT GROUP</h1>
 
